@@ -7,7 +7,7 @@
 
 - 🤝 I’m looking for help with **FullStack Web Developer,Backend and everything**
 
-- 💬 Ask me about anythink **I'll do the same with you**
+- 💬 Ask me about anything **I'll do the same with you**
 
 - 📫 How to reach me **kusogluo@gmail.com**
 
